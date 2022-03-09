@@ -1,0 +1,1 @@
+# mangnate_invest
